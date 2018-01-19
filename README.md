@@ -9,4 +9,4 @@
 * мама-врач, а папа-юрист
 ## Мои контакты
 * [Ссылка на Instagram](https://www.instagram.com/nassts/)
-* [Ссылка на VK](https://www.instagram.com/nassts/)
+* [Ссылка на VK](https://vk.com/nasstss)
