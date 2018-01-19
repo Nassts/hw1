@@ -8,5 +8,5 @@
 * у меня не такая большая семья-мама, папа и младший брат
 * мама-врач, а папа-юрист
 ## Мои контакты
-* Instagram: https://www.instagram.com/nassts/
-* VK: https://www.instagram.com/nassts/
+* [Ссылка на Instagram](https://www.instagram.com/nassts/)
+* [Ссылка на VK](https://www.instagram.com/nassts/)
